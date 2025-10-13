@@ -1,0 +1,1 @@
+Welcome to my digital space where I showcase my multifaceted journey as a dynamic Latina professional. My portfolio is a comprehensive reflection of my passion for analytical thinking, community engagement, and meaningful impact.
