@@ -1,1 +1,1 @@
-My Personal Brand Website
+This portfolio represents my commitment to excellence, continuous growth, and engaging meaningfully with others. I invite you to explore my work and connect with me on LinkedIn or GitHub to learn more about my professional journey.
